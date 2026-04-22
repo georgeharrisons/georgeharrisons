@@ -1,4 +1,7 @@
-<img width="2564" height="409" alt="Untitled609_20260409030734" src="https://github.com/user-attachments/assets/205d0d6f-7c4d-42f3-976a-e5b05982d945" />
+
+
+
+
 <img width="600" height="70" alt="IMG_8124" src="https://github.com/user-attachments/assets/be416518-ff7a-454b-93eb-136bdf0742bc" />
 
  𓏼𓏫 ͡꒱͏ི࣪   ⋆  ຣ◝ե𐑾𝓪ωϐᧉ𐑾𐑾ყིྀ  ◌¹  ࣪   ⋆ི    
